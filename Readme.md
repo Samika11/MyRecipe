@@ -1,0 +1,1 @@
+This recipe is a recipe for how to make Chocolate Covered Strawberries.
